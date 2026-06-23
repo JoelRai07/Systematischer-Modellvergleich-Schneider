@@ -1,1 +1,1 @@
-# -Systematischer-Modellvergleich-Schneider
+# Systematischer-Modellvergleich-Schneider
